@@ -1,4 +1,4 @@
-# Hi there, I'm Shavarsh 👋
+# Hi, I'm Shavarsh 👋
 
 ## About Me
 
